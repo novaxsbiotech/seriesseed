@@ -1,6 +1,6 @@
-# TERMS FOR PRIVATE PLACEMENT OF SERIES SEED PREFERRED STOCK OF *[COMPANY NAME]*
+# TERMS FOR PRIVATE PLACEMENT OF SERIES SEED PREFERRED STOCK OF NovaXS Biotech Corporation
 
-The following is a summary of the principal terms with respect to the proposed Series Seed Preferred Stock financing of *[Company Name]*, a Delaware corporation (the "Company").  Except for the section entitled "Binding Terms," this summary of terms does not constitute a legally binding obligation.  The parties intend to enter into a legally binding obligation only pursuant to definitive agreements to be negotiated and executed by the parties.
+The following is a summary of the principal terms with respect to the proposed Series Seed Preferred Stock financing of NovaXS Biotech Corporation, a Delaware corporation (the "Company").  Except for the section entitled "Binding Terms," this summary of terms does not constitute a legally binding obligation.  The parties intend to enter into a legally binding obligation only pursuant to definitive agreements to be negotiated and executed by the parties.
 
 ## Offering Terms  
 
