@@ -1,7 +1,7 @@
-# TERM SHEET FOR CONVERTIBLE PROMISSORY NOTE FINANCING OF [COMPANY NAME]
+# TERM SHEET FOR CONVERTIBLE PROMISSORY NOTE FINANCING OF NovaXS Biotech Corp.
 
 This term sheet is an expression of intent only, does not express the agreement of the parties, is not meant to be binding on the parties and is meant to be used as a negotiation aid by the parties. The parties do not intend to be bound until they enter into a definitive agreement regarding the subject matter of this term sheet.
-Issuer:  [Company Name], a Delaware corporation (the "**_Company_**").
+Issuer: NovaXS Biotech Corp., a Delaware corporation (the "**_Company_**").
 
 ## [Financing Amount][Investors]:
 
